@@ -1,1 +1,1 @@
-# paup_projekt_grupa3
+# PROJEKT GALERIJA FOTKI
